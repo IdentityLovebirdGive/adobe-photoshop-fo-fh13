@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS custom Action - real-time preview and typography tools offers the most advanced Adobe Photoshop for macOS action, with real-time preview and typography
 
 
 
